@@ -1,0 +1,2 @@
+# The-Institute-for-Weight-Management
+Dr. Chhabra’s expertise in the field of bariatric medicine and knowledge surrounding the science and physiology of obesity will serve to help you more pounds to lose.  All of our programs are very low in calories and monitored by our physician on a regular basis. This is especially important for those with health conditions such as diabetes mellitus or high blood pressure. Often a person’s prescription medications needs adjustment while starting a very low calorie program such as Optifast. Your safety is our number one concern.
